@@ -2,7 +2,7 @@
 - 👀 I’m interested in kpop,Music,making friends
 - 🌱 I’m currently learning koreans Language
 -  💞️ I’m looking to collaborate on ...
-- 📫 How to reach me Discord best_loonastan
+- 📫 How to reach me Discord heartzkaiya 
 
 <!---
 Miasaxxi/Miasaxxi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
